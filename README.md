@@ -1,0 +1,2 @@
+# duna
+sayang kamu 
